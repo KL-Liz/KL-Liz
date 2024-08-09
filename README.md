@@ -1,2 +1,2 @@
-- 👋 Hi, I’m @KL-Liz
+- 👋 Hola, Soy @KL-Liz. 
   
